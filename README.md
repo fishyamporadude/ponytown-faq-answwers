@@ -31,7 +31,8 @@
 
 <p align="center">
 <img src="https://media.discordapp.net/attachments/1111020653341065289/1204266640577921095/image.png?ex=65d41bb5&is=65c1a6b5&hm=22f53b3b560e4ef56d576fda6b7df2db72f1bda313a9a1171160a68c90674d3e&=&format=webp&quality=lossless&width=610&height=729"/>
-
+<p align="center">
+<img src="https://media.discordapp.net/attachments/1111020653341065289/1204246288355434617/Tumblr_l_723610074298779.gif?ex=65d408c0&is=65c193c0&hm=f99d0b1999993f9a2eb32b5251909ba4f9dfd32180889ec4b4468d1da6c9543a&=&width=24&height=24"/> self explanitory.
 
 
 
