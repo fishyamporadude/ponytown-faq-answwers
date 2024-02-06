@@ -26,6 +26,12 @@
 <p align="center">
 <img src="https://media.discordapp.net/attachments/1111020653341065289/1204246288355434617/Tumblr_l_723610074298779.gif?ex=65d408c0&is=65c193c0&hm=f99d0b1999993f9a2eb32b5251909ba4f9dfd32180889ec4b4468d1da6c9543a&=&width=24&height=24"/> it depends, do YOU think im a bad person? i cant dictate what you think of me, nor do i care. as long as you havve the ability to think for yourself, ill respect ur opinion of me
 
+<p align="center">
+<img src="https://media.discordapp.net/attachments/1111020653341065289/1204246287537406013/Tumblr_l_723595024638136.gif?ex=65d408c0&is=65c193c0&hm=b0958aba9bfbace4fc114d64d37f16ba28b700bb91608e9546ac8c4cc99a9eb3&=&width=24&height=24"/> how do you make the fish ears on ponytown? <img src="https://media.discordapp.net/attachments/1111020653341065289/1204246287923552266/Tumblr_l_723603419120938.gif?ex=65d408c0&is=65c193c0&hm=bf2e16d5050a1766c0ff87785de682cbfe1b275ec58598f08990c08c2ab446ad&=&width=24&height=24"/>
+
+<p align="center">
+<img src="https://media.discordapp.net/attachments/1111020653341065289/1204266640577921095/image.png?ex=65d41bb5&is=65c1a6b5&hm=22f53b3b560e4ef56d576fda6b7df2db72f1bda313a9a1171160a68c90674d3e&=&format=webp&quality=lossless&width=610&height=729"/>
+
 
 
 
